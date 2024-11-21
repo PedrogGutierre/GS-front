@@ -32,6 +32,6 @@ Utilizando uma balança inteligente em nossa plataforma, calculará a quantidade
 
 Nosso objetivo é expandir ainda mais a plataforma, formando parcerias com ONGs e empresas especializadas em conversão de biomassa. Além disso, planejamos criar um programa de recompensas que incentivará mais pessoas a contribuir para um futuro mais sustentável.
 
-
+------------------------------------------------------------------------------------------------------
 
 Sua participação é fundamental para um futuro mais verde e sustentável. 🍃
